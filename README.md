@@ -1,4 +1,3 @@
-- https://ravendot.com/
 - 👋 Hi, I’m @cricri312
 - 👀 I’m interested in ?*?
 - 🌱 I’m currently learning ?*?
